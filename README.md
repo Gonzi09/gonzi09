@@ -1,5 +1,5 @@
-Welcome To My Profile! 👋
-
+**Welcome To My Profile! 👋
+**
 🎓 CS Junior @ Northeastern University  
 📐 Mathematics Minor | 🇷🇺 Russian Minor  
 
